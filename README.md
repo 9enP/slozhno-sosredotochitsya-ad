@@ -1,1 +1,1 @@
-https://github.com/9enP/posmotri-v-okno-ad
+https://github.com/9enP/slozhno-sosredotochitsya-ad
